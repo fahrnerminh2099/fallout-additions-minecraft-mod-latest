@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/fallout-additions-minecraft)
+[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/dsVCHT2v2vEvwQT0k)
 
 </div>
 
@@ -152,7 +152,7 @@
 
 <div align="center">
 
-[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/fallout-additions-minecraft)
+[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/dsVCHT2v2vEvwQT0k)
 
 </div>
 
@@ -333,7 +333,7 @@ Survive the wasteland in Minecraft for free. **Fallout Additions Minecraft Mod U
 
 <div align="center">
 
-[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/fallout-additions-minecraft)
+[![Download Fallout Additions Mod](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/dsVCHT2v2vEvwQT0k)
 
 **Version 4.3.1** — Free Fallout content mod for Minecraft. May 2026 update. Zero cost. No payment.
 
